@@ -1,0 +1,2 @@
+# Spiritual-Development
+To increase spiritual awareness, implement habits and rituals, and strengthen connections to the source, higher self, and heart space. To live with awareness, compassion, and transparency by making decisions according to one's highest self. To also listen to the heart and soul and truly listen to its needs while also maintaining balance within the mind, body, and soul. To learn knowledge, truth, and wisdom, and share this understanding with those willing to listen. 
